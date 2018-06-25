@@ -2,3 +2,9 @@
 
 Our engineering team has been developing a cloud management platform which provides a easy-to-use interface to manage the super node. Also, we will be offering cyber security service which provides a set of proprietary solutions to shield the super node from cyber attacks.
 
+Please join us on our social media channels: 
+
+  * Website:   [http://www.infinitystones.io/](http://www.infinitystones.io/)
+  * Twitter:   [https://twitter.com/infstones](https://twitter.com/infstones)
+  * Facebook:  [https://www.facebook.com/infinity.stones.12327](https://www.facebook.com/infinity.stones.12327)
+  * Telegram:  [https://t.me/infstones](https://t.me/infstones)
