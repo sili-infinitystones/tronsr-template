@@ -1,4 +1,4 @@
-1. The Infinity Stones has assembled a strong technology team of Ph.Ds and Faculties with world-class academic tracking record and leading industry experience. By leveraging these relationships and tracking records, the Infinity Stones can help expand TRON’s influence in the academic community and industry through the following ways
+1. The Infinity Stones has assembled a strong technology team of Ph.Ds and Faculties with world-class academic track record and leading industry experience. By leveraging these relationships and track records, the Infinity Stones can help expand TRON’s influence in the academic community and industry through the following ways
 
   * Host a series of seminars and workshops in world-renowned research institutes as well as industrial meetings. It is a way of marketing TRON to both academia and major enterprises.
 
